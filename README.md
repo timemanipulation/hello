@@ -1,3 +1,3 @@
-[da liiiink](chrome://chrome-signin/)
+[da liiiink](google.com)
 
 [ueeehgh](chrome://chrome-signin/)
