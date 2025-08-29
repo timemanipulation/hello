@@ -1,4 +1,4 @@
 [da liiiink](https://www.google.com/)
 
 
-[hhg](chrome://chrome-signin/)
+[hhg](https://tinyurl.com/yc3xm247)
